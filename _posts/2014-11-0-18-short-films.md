@@ -1,11 +1,19 @@
+---
+layout: post
+titile: Short Films
+---
+
 Once in a while, you want to watch something nice.  
-You want to watch something nice but without the time commitment of a full film or the attention span series require.
+You want to watch something nice but without the time commitment of a full film or the attention span required by series.  
 
 I often found myself browsing for some short films on you tube.  
 Here is a quick list of those i seen and like.  
 
-So far it is not listed in anyway, shape or form.  
+So far it is not ordered in anyway, shape or form.  
 I should probably tell you that some, if not most, contain violence to a degree.
+
+[PLURALITY](https://www.youtube.com/watch?v=IzryBRPwsog) 
+Published on Oct 1, 2012 
 
 [Echoes - Post Apocalyptic Short Film](https://www.youtube.com/watch?v=-hcxIOZoFVo) 
 Published on Mar 14, 2012 it
@@ -45,6 +53,9 @@ Published on Oct 24, 2012
 [TETHER ](https://www.youtube.com/watch?v=qo2iiqYFKBk)
 Published on May 29, 2012 
 
+[Practical VFX Short Films HD: *Award Winning* "Elefante" - by Pablo Larcuen ](https://www.youtube.com/watch?v=ZRxf9HmSo4k)
+ Published on Feb 23, 2014 
+
 [PRISM - An Action/Scifi Film! ](https://www.youtube.com/watch?v=9QoNouEfjuo)
 Uploaded on Jun 30, 2011
 
@@ -63,4 +74,33 @@ Published on Nov 4, 2013
 [Paradox - Fantasy Award-winning Short Film](https://www.youtube.com/watch?v=nnfh3qcpBxA)
 Published on Feb 15, 2013
 
+["Alone" - *Award Winning* Post-Apocalyptic Short Film](https://www.youtube.com/watch?v=wbTc81JmQTs)
+Published on Sep 15, 2013
+
+[RUIN](https://www.youtube.com/watch?v=doteMqP6eSc)
+Published on Mar 15, 2012
+
+[Oceansize - spectacular animated Sci-fi](https://www.youtube.com/watch?v=KzPHbSYfPAQ)
+Uploaded on Jun 19, 2009 
+
+["Cockpit: The Rule of Engagement" - Sci-Fi Short Film](https://www.youtube.com/watch?v=FIZlR_H4uEs)
+Published on May 23, 2012
+
+[A Futuristic Short Film HD: "True Skin" by - N10N ](https://www.youtube.com/watch?v=ETv3eNj46EM)
+Published on Aug 17, 2013
+
+[Short Film "Encounter"](https://www.youtube.com/watch?v=Fw0rpGmsiv0)
+Uploaded on Jul 5, 2010 
+ 
+[A Futuristic Short Film (Ultra-HD) "Telescope" - by The Telescope Team](https://www.youtube.com/watch?v=Yid59_nd9-8)
+Published on Oct 29, 2013
+
+[A Sci-fi / Mystery / Abstract Short Film HD: "Jupiter I I" - by Maxim Zhestkov ](https://www.youtube.com/watch?v=91skbeAHwNc)
+Published on May 4, 2014
+
+
+[Hybrids - Short Science-Fiction Film by Patrick Kalyn](https://www.youtube.com/watch?v=25-aYv47U5o)
+Published on Jan 21, 2014
+
 More to come 
+
