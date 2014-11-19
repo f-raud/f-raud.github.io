@@ -98,9 +98,18 @@ Published on Oct 29, 2013
 [A Sci-fi / Mystery / Abstract Short Film HD: "Jupiter I I" - by Maxim Zhestkov ](https://www.youtube.com/watch?v=91skbeAHwNc)
 Published on May 4, 2014
 
+[CGI VFX Blender Short HD: "Tears of Steel" Written and Directed by Ian Hubert](https://www.youtube.com/watch?v=5ZCsUbRydBU)
+Published on Sep 26, 2012
 
 [Hybrids - Short Science-Fiction Film by Patrick Kalyn](https://www.youtube.com/watch?v=25-aYv47U5o)
 Published on Jan 21, 2014
+
+
+[CGI VFX Stop-Motion Short Film HD: "OMEGA" - by Eva Franz and Andy Goralczyk ](https://www.youtube.com/watch?v=3019nJDXVKs)
+Published on Apr 26, 2014
+
+[CGI VFX Short Films HD: "The Black Case" - (ArtFX)](https://www.youtube.com/watch?v=XERos9dw9Tk)
+Published on Jul 11, 2014
 
 More to come 
 
